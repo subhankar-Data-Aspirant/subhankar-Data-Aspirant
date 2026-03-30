@@ -1,5 +1,8 @@
 # 💫 About Me:
-Hi, I’m Subhankar — a passionate professional currently working at Teleperformance with strong skills in data analysis and a deep interest in learning new technology every day.<br><br>Alongside my job, I also run a small agency where I help small businesses improve their digital presence and grow smarter using practical solutions. Through this journey, I’ve strengthened my communication skills, problem-solving ability, and understanding of real client needs.<br><br>I enjoy turning raw data into meaningful insights and using technology to make work faster, smarter, and more impactful.<br><br>Fun fact: I genuinely enjoy exploring hidden tech tools and productivity tricks in my free time — sometimes I discover solutions before problems even appear 🙂<br>
+I am currently working at Teleperformance and have a strong background in data analysis with a continuous focus on learning new technology skills. Alongside my professional role, I run a small agency where I support small businesses in improving their digital presence and operations. This experience has helped me strengthen my communication, problem-solving, and client-handling abilities.
+
+Fun fact: I enjoy exploring new tech tools and productivity solutions that help make work smarter and more efficient.
+ 🙂<br>
 
 
 ## 🌐 Socials:
